@@ -1,1 +1,1 @@
-# EstruturasDeRepeticao
+# EstruturasDeRepeticao, atividades.
